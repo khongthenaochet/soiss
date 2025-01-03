@@ -48,7 +48,11 @@ Theo y học cổ truyền cây râu mèo có vị ngọt, đắng nhẹ, có t�
 
 
 THÔNG TIN LIÊN HỆ
+
 CÔNG TY THẢO DƯỢC PHAMPHULAM
+
 Chịu trách nhiệm xuất bản: Giám đốc - Đặng Ngọc Huy
+
 Điện thoại: 0208.3.644504/ Fax: 0208.3.555437; Email: RGDTte@thainguyen.gov.vn
+
 Địa chỉ: Số 553 đường Phùng Chí Kiên, phường Túc Duyên, thành phố Thái Nguyên, tỉnh Thái Nguyên
